@@ -1,0 +1,11 @@
+Calakmul
+Calkini
+Campeche
+Candelaria
+Carmen
+Champoton
+Escarcega
+Hecelchakan
+Hopelchen
+Palizada
+Tenabo
