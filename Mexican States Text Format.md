@@ -4,6 +4,7 @@ Baja California Sur
 Campeche  
 Chihuahua  
 Chiapas  
+Ciudad de México
 Coahuila  
 Colima  
 Durango  
